@@ -10,7 +10,7 @@ Soi cầu lô đề miền bắc kết quả soi cầu lô víp bạch thủ lô
 <div class="wp-caption">
 <div class="wp-caption">
 
-[caption id="attachment_1109" align="aligncenter" width="629"]<img class="size-full wp-image-1109" src="https://mobat288.com/wp-content/uploads/2017/12/ketquaxosongay16-12-1.png" alt="" width="629" height="387" />                                                        Kết quả xổ số miền bắc 16-12-2017[/caption]
+<img class="size-full wp-image-1109" src="https://mobat288.com/wp-content/uploads/2017/12/ketquaxosongay16-12-1.png" alt="" width="629" height="387" />                                                        Kết quả xổ số miền bắc 16-12-2017
 
 </div>
 </div>
@@ -22,7 +22,7 @@ Soi cầu lô đề miền bắc kết quả soi cầu lô víp bạch thủ lô
 <p class="wp-caption-text"></p>
 
 
-[caption id="attachment_1111" align="aligncenter" width="559"]<img class="size-full wp-image-1111" src="https://mobat288.com/wp-content/uploads/2017/12/thongke-xosongay17-12-2017.png" alt="" width="559" height="530" /> Thống kê kết quả xổ sô ngày 17-12-2017[/caption]
+<img class="size-full wp-image-1111" src="https://mobat288.com/wp-content/uploads/2017/12/thongke-xosongay17-12-2017.png" alt="" width="559" height="530" /> Thống kê kết quả xổ sô ngày 17-12-2017
 
 </div>
 <div class="wp-caption"></div>
@@ -34,7 +34,7 @@ Soi cầu lô đề miền bắc kết quả soi cầu lô víp bạch thủ lô
 <div class="wp-caption">
 <div class="wp-caption">
 
-[caption id="attachment_1112" align="aligncenter" width="637"]<img class="size-full wp-image-1112" src="https://mobat288.com/wp-content/uploads/2017/12/thongkechamtongdacbietngay17-12-2017.png" alt="" width="637" height="417" />                                        Thống kê chạm tổng đặc biệt kết quả ngày 17-12-2017[/caption]
+<img class="size-full wp-image-1112" src="https://mobat288.com/wp-content/uploads/2017/12/thongkechamtongdacbietngay17-12-2017.png" alt="" width="637" height="417" />                                        Thống kê chạm tổng đặc biệt kết quả ngày 17-12-2017
 
 </div>
 </div>
